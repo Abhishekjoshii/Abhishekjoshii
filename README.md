@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://abhishekjoshii.netlify.app/](https://abhishekjoshii.netlify.app/)
 
-- 📫 How to reach me **am1514@srmist.edu.in**
+- 📫 How to reach me **joshiabhishek847@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
